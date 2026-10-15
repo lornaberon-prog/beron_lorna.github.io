@@ -1,1 +1,1 @@
-CV. Lorna, Beron. Procesamiento de Dato 3. https://beron_lorna.github.io 
+CV. Lorna, Beron. Procesamiento de Dato 3. https://lornaberon.github.io 
